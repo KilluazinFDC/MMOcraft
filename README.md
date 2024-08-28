@@ -5,3 +5,4 @@ estou aprendendo ainda a "codar" tenho 15 anos nunca pensei em criar um projeto 
 <br><br><br><br>
 <code> CASO QUEIRA ME APOIAR DE ALGUMA FORMA MEU DISCORD É o seguinte: sommaf
 caso queira ajudar em dinheiro ainda não tenho carteira de criptomoeda, então tem que ser via pix: ffd758e0-ac54-4094-9e03-5509a2f21784 </code>
+
